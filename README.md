@@ -1,6 +1,6 @@
 - Master Student in Unimelb major in Data Science. Bachelor of Artificial Intelligence. Geeeeeeeeee, what a waste of life.
 - Confused with what to do next, can do DA, sde, blablablablabla, or pusue a PHD degree.
-- Currently AI engineer @DOORglobal
+- Currently AI engineer @DOORglobal and have a cat @comet
 - Know too little on math and coding also know nothing about life.
 - New purpose of life, live longer.
 
